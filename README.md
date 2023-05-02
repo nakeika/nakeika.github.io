@@ -1,3 +1,3 @@
-# nakeika.github.io смирнов сосет jfdklfjs
+# nakeika.github.io смирнов сосет 
 
 сайт на доработке
